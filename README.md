@@ -1,1 +1,0 @@
-# Fiskom-Analisis-Soal-Fisika
